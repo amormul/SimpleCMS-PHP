@@ -30,7 +30,3 @@
 ![image](https://github.com/user-attachments/assets/ef6ac47d-d623-4961-adea-dd716b48dd12)
 ![image](https://github.com/user-attachments/assets/b7db21d7-4d5c-427f-bd14-6ec0f3aeaf8c)
 ![image](https://github.com/user-attachments/assets/d0ef84af-7334-427d-aad9-af884310dc1b)
-
-
-
-
